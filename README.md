@@ -1,0 +1,1 @@
+# tecnicak.kin
